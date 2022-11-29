@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mrderakap
+- 👀 Why you are here 
+- 👌İf you have a quest write me ; mrderakap@gmail.com
